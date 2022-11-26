@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Shion7581
 - 👀 I’m interested in Coding!
 - 🌱 I’m currently learning Python
-- 🎉 I am 13 years old! She/Her
+- 🎉 I am 14 years old! She/Her
 - 📫 How to reach me hellouniverse.khushi@gmail.com
 
 <!---
